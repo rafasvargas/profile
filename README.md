@@ -2,7 +2,7 @@
 ***
 ## My name is **Rafael**, nice to meet you!
 
-*"If you can be better, why not be" - Unknown Author*
+*"If you can be better, why not be?" - Unknown Author*
 <br/>
 <br/>
 
